@@ -1,0 +1,1 @@
+# QUADRes.ovi
